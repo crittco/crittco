@@ -18,10 +18,10 @@ critterㅤ𝘰𝘳ㅤgamzㅤ ──── ୨୧ ────ㅤhe itㅤnineteen
 ⇙ㅤ𝘀𝗼𝗺𝗲 𝗼𝗳 𝗺𝘆 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀ㅤ⇘
 </p>
 <p align="center">
-homestuckㅤchiikawa ㅤsanrio ㅤroblox ㅤenstars ㅤvocaloidㅤmlp 
+𝗵𝗼𝗺𝗲𝘀𝘁𝘂𝗰𝗸ㅤ𝗰𝗵𝗶𝗶𝗸𝗮𝘄𝗮 ㅤsanrio ㅤroblox ㅤenstars ㅤvocaloidㅤmlp 
 </p>
 <p align="center">
-hermitcraft ㅤlife series ㅤanimal jam ㅤstardew ㅤpusheenㅤlps 
+hermitcraft ㅤlife series ㅤ𝗮𝗻𝗶𝗺𝗮𝗹 𝗷𝗮𝗺 ㅤstardew ㅤpusheenㅤlps 
 </p>
 
 <p align="center">
