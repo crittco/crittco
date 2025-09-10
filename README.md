@@ -21,3 +21,7 @@ homestuckㅤchiikawa ㅤsanrio ㅤroblox ㅤenstars ㅤvocaloidㅤmlp
 <p align="center">
 hermitcraft ㅤlife series ㅤanimal jam ㅤstardew ㅤpusheenㅤlps 
 </p>
+<p align="center">
+↜ㅤ𝘀𝗼𝗺𝗲 𝗼𝗳 𝗺𝘆 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀ㅤ↝
+
+</p>
