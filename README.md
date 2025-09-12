@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=crittco&color=yellow&style=plasticlabel=visitors)
+![](https://komarev.com/ghpvc/?username=crittco&color=yellow&style=plastic&label=visitors)
 
 <p align="center">
 <img src="https://file.garden/Ze-bKFmahEcRvhDw/github/github%20banner.png" width="500" height="400">
