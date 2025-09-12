@@ -23,6 +23,9 @@ critterㅤ𝘰𝘳ㅤgamzㅤ ──── ୨୧ ────ㅤhe itㅤnineteen
 <p align="center">
 hermitcraft ㅤlife series ㅤ𝗮𝗻𝗶𝗺𝗮𝗹 𝗷𝗮𝗺 ㅤstardew ㅤpusheenㅤlps 
 </p>
+<p align="center">
+𝘂𝗻𝗱𝗲𝗿𝘁𝗮𝗹𝗲ㅤ𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲 ㅤfnaf ㅤpokemon ㅤcreepypasta ㅤ𝗱𝗿𝗮𝘄𝗶𝗻𝗴ㅤ 
+</p>
 
 <p align="center">
 <img width="500" height="10" alt="div" src="https://github.com/user-attachments/assets/9f4f6414-711c-4810-8809-e0c38b9ce509" />
