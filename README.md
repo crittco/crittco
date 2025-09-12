@@ -29,6 +29,7 @@ hermitcraft ㅤlife series ㅤ𝗮𝗻𝗶𝗺𝗮𝗹 𝗷𝗮𝗺 ㅤstardew �
 </p>
 
 <p align="center">
-⇙ㅤwipㅤ⇘
+⇙ㅤ𝗺𝗼𝗿𝗲ㅤ⇘
 </p>
 
+[<img width="200" height="150" alt="ata" src="https://github.com/user-attachments/assets/09a4a998-93f3-4808-b14e-f0a323fcab4b" />](https://gamz.atabook.org/)
