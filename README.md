@@ -37,4 +37,4 @@ hermitcraft ㅤlife series ㅤ𝗮𝗻𝗶𝗺𝗮𝗹 𝗷𝗮𝗺 ㅤstardew �
 ⇙ㅤ𝗺𝗼𝗿𝗲ㅤ⇘
  </p>
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [<img align="center" width="200" height="150" alt="ata" src="https://github.com/user-attachments/assets/0194fc33-83b6-480c-a35d-c8bb3f196176" />](https://gamz.atabook.org/)ㅤㅤㅤ[<img align="center" width="200" height="150" alt="system" src="https://github.com/user-attachments/assets/f7e25d6f-f049-4a50-b183-de2338bfc8be" />](https://pluralkit.xyz/f/feyyy)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [<img align="center" width="200" height="150" alt="ata" src="https://github.com/user-attachments/assets/0194fc33-83b6-480c-a35d-c8bb3f196176" />](https://gamz.atabook.org/)ㅤㅤㅤ[<img align="center" width="200" height="150" alt="system" src="https://github.com/user-attachments/assets/f7e25d6f-f049-4a50-b183-de2338bfc8be" />](https://pluralkit.xyz/f/feyyy)
